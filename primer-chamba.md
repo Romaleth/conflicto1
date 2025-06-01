@@ -2,4 +2,4 @@
 para aprender
 
 hola que tal hoy es sabado
-today is saturday , yee yee yeee
+today is  on saturday , yee yee yeee
