@@ -1,0 +1,2 @@
+## PROBANDO ERRORES COMUNES
+para aprender
